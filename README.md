@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hamidehshabani
-- 👀 I’m interested in robatics ,Learning French و billiards
+- 👀 I’m interested in robatics ,Learning French, billiards
 - 🌱 I’m currently learning DBA at Tehran University
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
